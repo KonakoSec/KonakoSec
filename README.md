@@ -2,4 +2,4 @@
 - 👀 I’m interested in cut and copy your cookies
 - 🌱 I’m currently learning HowToSteal Cookies
 - 💞️ I’m looking to collaborate on something sweet like cookies
-- 📫 How to reach me... just if u stalk, maybe using my cookies?
+- 📫 How to reach me... just if u stalke, maybe find my cookies?
